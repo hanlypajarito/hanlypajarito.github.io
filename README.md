@@ -1,1 +1,0 @@
-# hanlypajarito.github.io
